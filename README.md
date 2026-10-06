@@ -2,15 +2,20 @@
 
 Free & premium **cozy anime wallpapers** for study, focus & aesthetic desk setups. Rainy rooms, starry nights, sakura, autumn cabins & cozy seasonal scenes. High-res, watermark-free — honestly disclosed as AI-generated art.
 
-![Cozy anime wallpaper](https://rererenren.github.io/pins/mega_bundle.jpg)
-
 ## 🎁 Free Wallpaper
-Grab a free cozy rainy-study-room wallpaper — no strings:
+![Free rainy study room wallpaper](free-rainy-study-room.jpg)
+
+Grab a **free** cozy rainy-study-room wallpaper — no strings:
 **→ https://rererenren.gumroad.com/l/free-cozy-anime-wallpaper**
 
-## 🎨 More Wallpapers
-- **Mega Bundle (10 wallpapers):** https://rererenren.github.io
-- **Shop + free study guides:** https://rererenren.github.io
+## 🎨 The Collection
+
+| | |
+|---|---|
+| ![Starry night](starry-night-desk.jpg) | ![Sakura spring](sakura-spring.jpg) |
+
+**Mega Bundle (10 wallpapers):** https://rererenren.github.io
+**Shop + free study guides:** https://rererenren.github.io
 
 ## Scenes
 🌧️ Rainy study room · 🌙 Starry night desk · 🌸 Sakura · 🍂 Autumn cabin · ❄️ Christmas · 🏯 Kyoto
